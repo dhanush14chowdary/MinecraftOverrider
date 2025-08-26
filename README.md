@@ -1,4 +1,6 @@
 # MinecraftOverrider
+before it was working... not now, will update the files and check...  
+wait for it!
 secret!!! ----These files will override the minecraft Paid version to free
 
 **disclaimer:** Please don't make youtube video or post it on online so that i become famous so that i can't play or i'll be banned, since i don't want to pay minecraft until i make money from Youtube by playing minecraft! after that i'll pay for app and server!
